@@ -1,2 +1,2 @@
 # echomeran.github.io
-ads352 internet sitesi
+ads352 internet sitesine hoşgeldiniz!
